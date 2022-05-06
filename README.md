@@ -31,3 +31,9 @@ C'est un état d'esprit, une culture, un mouvement qui vise à concilier les dé
 -Automatiser les procéssus essentiels
 
 
+Email:
+gregoire.p.langlois@gmail.com
+sekrimanelle@gmail.com
+zine.rachid7@gmail.com
+
+
